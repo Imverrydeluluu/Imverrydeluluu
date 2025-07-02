@@ -3,7 +3,7 @@
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=AutisticDetective&color=00047e&style=plastic&label="Protecting_what's_important_to_you_is_a_given")
+![](https://komarev.com/ghpvc/?username=AutisticDetective&color=00047e&label="Protecting_what's_important_to_you_is_a_given")
 
 ![](https://github.com/user-attachments/assets/e66d5b9d-f39f-491e-a105-54267663ec93)
 
