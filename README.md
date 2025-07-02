@@ -10,10 +10,9 @@
  <img src="https://github.com/user-attachments/assets/536a516d-532f-4324-81c4-153fa571c94b" alt="Description" width="500">
 
  
-✦ 𝓚𝓮𝓲𝓴𝓸 ⋆ 𝓩𝓮𝓮 ⋆ 𝓒𝓪𝓴𝓮 ✦ ᝰ.ᐟ
+✦ 𝑲𝒆𝒊𝒌𝒐 ⋆ 𝒁𝒆𝒆 ⋆ 𝑪𝒂𝒌𝒆 ✦ ᝰ.ᐟ
 
 ⤷ ˗ˏˋ 𝑻𝒉𝒆𝒚 / 𝑻𝒉𝒆𝒎   ⌗   𝑩𝒊𝒔𝒆𝒙𝒖𝒂𝒍 ♡ ˎˊ˗
-
 
 ┆༄ ❝ [𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://imverrydelulu.atabook.org)
 
