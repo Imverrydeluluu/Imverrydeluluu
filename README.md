@@ -14,7 +14,10 @@
 
 ⤷ ˗ˏˋ 𝑻𝒉𝒆𝒚 / 𝑻𝒉𝒆𝒎   ⌗   𝑩𝒊𝒔𝒆𝒙𝒖𝒂𝒍 ♡ ˎˊ˗
 
+
 ┆༄ ❝ [𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://imverrydelulu.atabook.org)
+
+![](https://github.com/user-attachments/assets/e66d5b9d-f39f-491e-a105-54267663ec93)
 
 </div>
 
