@@ -4,7 +4,7 @@
 
 <img width="2048" height="687" alt="IMG_0757" src="https://github.com/user-attachments/assets/4d496db5-c136-41f9-9a3f-d3a45d69354b" />
   
-![](https://komarev.com/ghpvc/?username=AutisticDetective&color=9a85b8&label=_"_Your_Honour,_he_won’t_stop_saying_it_😧🫴"__)
+![](https://komarev.com/ghpvc/?username=AutisticDetective&color=9a85b8&label=cuties)
 
 ---
 
@@ -16,6 +16,11 @@ THE real shinichi
 
 ┆༄ ❝ [𝑨𝒕𝒂𝒃𝒐𝒐𝒌](https://imverrydelulu.atabook.org)
 
+---
+
+i didnt need to have my heart broken again. NOOO :sob:
+
+https://github.com/user-attachments/assets/53d28d20-bfec-4c7c-9fa1-72106c9fb013
 
 </div>
 
